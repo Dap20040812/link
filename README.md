@@ -1,5 +1,3 @@
 # link
 
-https://www.mediafire.com/file/2bsqaq0w83orh9b/14.1.2_NUEVAS_LLAVES_Y_NAND.rar/file
-
-https://drive.google.com/file/d/1ygmIO7eO3NuWp5Izb_oaIdMPblcL62aR/view?usp=share_link
+https://drive.google.com/file/d/1ygmIO7eO3NuWp5Izb_oaIdMPblcL62aR/view?usp=share_link](https://drive.google.com/file/d/1j1OiVC9nas3y1dQvyPBKKM_MGthXs4KF/view?usp=sharing)https://drive.google.com/file/d/1j1OiVC9nas3y1dQvyPBKKM_MGthXs4KF/view?usp=sharing
